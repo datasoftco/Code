@@ -6,5 +6,4 @@ for Any one ...
 Datasoft Co.
 
 Dr.Abdulmajeed Nomman
-Dr.Nasreen A.
 2016
